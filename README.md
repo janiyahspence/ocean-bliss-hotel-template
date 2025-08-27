@@ -1,0 +1,1 @@
+ocean-bliss-hotel-template
